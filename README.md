@@ -4,7 +4,7 @@
 
 - 👨‍💻 All of my projects are available at [https://harshrajput.netlify.app/](https://harshrajput.netlify.app/)
 
-- 📫 How to reach me **rajput24.harsh@gmail.com**
+- 📫 How to reach me **rajput16.harsh@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
